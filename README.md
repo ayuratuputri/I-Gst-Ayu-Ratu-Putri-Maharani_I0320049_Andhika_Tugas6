@@ -1,0 +1,1 @@
+# I-Gst-Ayu-Ratu-Putri-Maharani_I0320049_Andhika_Tugas6
